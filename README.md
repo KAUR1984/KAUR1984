@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Jasmeen 🫶
-- 👀 I’m interested in coding 👩‍💻, playing 🏸 and singing 🎤
+- 👀 I’m interested in coding 👩‍💻, playing badminton 🏸 and singing 🎤
 - 🌱 I’m currently learning Flutter...
 - 💞️ I’m looking to collaborate on saving water 💧 for our planet...
 - 📫 How to reach me... https://www.linkedin.com/in/kaur-jasmeen1/
